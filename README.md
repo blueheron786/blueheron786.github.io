@@ -1,1 +1,1 @@
-# blueheron786.github.io
+# [Privacy Policy](https://blueheron786.github.io/privacy_policy)
